@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Ihunts
 - 👀 I’m interested in Making Games in Unity
 - 🌱 I’m currently learning How to Code, Do Artwork, and 3D Model.
-- 📫 How to reach me @ my Email: gamefix.mackley@gmail.com
+- 📫 How to reach me @ my Email: N/A
 - I have a Youtube Channel too! You can take a look at it Here: https://bit.ly/39UEURa
